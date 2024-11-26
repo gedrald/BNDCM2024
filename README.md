@@ -1,6 +1,3 @@
-![Frame 1 (3) 1](https://ltdfoto.ru/images/2024/07/12/image-9-1.png)
-
-
 # Bandicam Full Version / Activator
 
 > [!NOTE]
